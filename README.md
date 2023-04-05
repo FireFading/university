@@ -1,1 +1,1 @@
-## different univursity tasks
+## different university tasks
